@@ -17,6 +17,3 @@ Head of Programs & Strategy: led the team to win 3 hackathons
 Results
 3 hackathon wins under my leadership
 Live platform serving Calabar
-Context
-
-Delivered within Guru Innovation Hub, where I managed 30+ team members across hubs and a functional budget of about ₦50 million.
