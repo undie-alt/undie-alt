@@ -21,7 +21,7 @@ Signed MOUs with university leadership for student training and hub spaces.
 Project Manager for Inwang Foods, Trustee, Moorral, and GetTicket.
 Country Director / COO (Programs) — Mind Reformers Network (2018–2025)
 Directed peacebuilding and civic development programmes in Kaduna, Lagos, Calabar, Umuahia, and Ogun.
-Grant and Fundraising Officer — KLACI Africa (2025–2026)
+Grant and Fundraising Officer — KLCI Africa (2025–2026)
 Supported a portfolio serving 12,000+ direct beneficiaries, including Skill2Rural and 76 active partner schools.
 Coordinated with AWS and the Deloitte Social Entrepreneur Accelerator.
 Programs Manager — The Guru Leadership Foundation (2018–2022)
